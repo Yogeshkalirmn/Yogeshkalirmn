@@ -18,7 +18,7 @@ Dynamic and results-driven Business Analyst with experience in the banking secto
 - Machine Learning 🤖  
 
 📫 **Let's Connect:**  
-[LinkedIn](#) | [Email](#) | [Portfolio (if any)](#)  
+[www.linkedin.com/in/yogeshkalirmn](#) | [Email](#) | [Portfolio (if any)](#)  
 
 🚀 Open to **collaborations & opportunities** in Business Analytics!  
 
