@@ -15,7 +15,7 @@ Dynamic and results-driven Business Analyst with experience in the banking secto
 
 📌 **Currently Exploring:**  
 - Advanced Business Analytics 📊  
-- Machine Learning for Financial Insights 🤖  
+- Machine Learning 🤖  
 
 📫 **Let's Connect:**  
 [LinkedIn](#) | [Email](#) | [Portfolio (if any)](#)  
